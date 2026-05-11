@@ -1,4 +1,4 @@
-
+Experience jujutsu infinite like never before with automatic jujutsu infinite Script, the #1 Script. Includes anti-ban and private server access for
 
 
 
